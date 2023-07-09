@@ -1,1 +1,1 @@
-this is second readme
+MAnutd na bastard
